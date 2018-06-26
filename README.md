@@ -1,1 +1,1 @@
-# justminion510.github.io
+there is supposed to be info about me
